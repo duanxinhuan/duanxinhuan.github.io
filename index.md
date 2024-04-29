@@ -1,1 +1,1 @@
-Here is Jack's Blog
+Here is My Blog
